@@ -1,8 +1,8 @@
 {
   "version": 2,
-  "dgSpecHash": "CWRAXk/P/iflk16NXNKmZtJ9MAyr0cl1wzfibLEkVpOuWqijyBhnD/mV7VPpmeJHA6Awxleu4hScZKcnVO/ALw==",
+  "dgSpecHash": "LccZhsi9wbskF/DiFwOfr17ad9j3wf2Z+Ze/pXMbR+9lFOFTjkVtNdnCdShzMf5J17fdT5R4V8MrtObwzggUbA==",
   "success": true,
-  "projectFilePath": "C:\\Users\\opilane\\source\\repos\\NETFLIX\\NETFLIX\\NETFLIX.csproj",
+  "projectFilePath": "C:\\Users\\opilane\\source\\repos\\NETFLIXapp\\NETFLIX\\NETFLIX.csproj",
   "expectedPackageFiles": [
     "C:\\Users\\opilane\\.nuget\\packages\\communitytoolkit.maui\\2.0.0\\communitytoolkit.maui.2.0.0.nupkg.sha512",
     "C:\\Users\\opilane\\.nuget\\packages\\communitytoolkit.maui.core\\2.0.0\\communitytoolkit.maui.core.2.0.0.nupkg.sha512",
