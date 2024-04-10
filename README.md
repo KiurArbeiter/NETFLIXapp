@@ -54,3 +54,44 @@ And try to touch your hands like some screamin' Usher fans
 (Ahh, ahh, ahh)
 This guy at White Castle asked for my autograph (Dude, can I get your autograph?)
 So I signed it, "Dear Dave, thanks for the support, asshole"
+
+[Chorus: Eminem]
+Hi, my name is, huh? My name is, who?
+My name is, chka-chka, Slim Shady
+Hi, my name is, what? My name is, who?
+My name is, chka-chka, Slim Shady
+Hi, my name is, huh? My name is, who?
+My name is, chka-chka, Slim Shady
+Hi, my name is, what? My name is, who?
+My name is, chka-chka, Slim Shady
+
+[Verse 3: Eminem]
+Stop the tape, this kid needs to be locked away (Get him)
+Dr. Dre, don't just stand there, operate
+I'm not ready to leave, it's too scary to die (Fuck that)
+I'll have to be carried inside the cemetery and buried alive
+(Huh, yup)
+Am I comin' or goin'? I can barely decide
+I just drank a fifth of vodka, dare me to drive? (Go ahead)
+All my life I was very deprived
+I ain't had a woman in years and my palms are too hairy to hide (Whoops)
+Clothes ripped like the Incredible Hulk
+I spit when I talk, I'll fuck anything that walks (Come here)
+When I was little, I used to get so hungry I would throw fits
+How you gonna breastfeed me, Mom? You ain't got no tits
+I lay awake and strap myself in the bed
+With a bulletproof vest on and shoot myself in the head (Bang)
+'Cause I'm steamin' mad (Grr)
+And by the way, when you see my dad (Yeah?)
+Tell him that I slit his throat in this dream I had
+
+Hi, my name is, what? My name is, who?
+My name is, chka-chka, Slim Shady
+Hi, my name is, huh? My name is, what?
+My name is, chka-chka, Slim Shady
+Hi, my name is, who? My name is, huh?
+My name is, chka-chka, Slim Shady
+Hi, my name is, huh? My name is, who?
+My name is, chka-chka, Slim Shady
+
+47minute-
